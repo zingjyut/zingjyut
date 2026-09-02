@@ -1,16 +1,14 @@
-## Hi there 👋
+# 你好,我是包婧玥
 
-<!--
-**zingjyut/zingjyut** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+language, literature and culture. 目前在做的事情：把过去的积累、现在的思考和未完成的创作...整理成可见的作品集；）
 
-Here are some ideas to get you started:
+**作品集(持续整理并更新ing）:**
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+
+**擅长：**
+- 写作与策划
+- 信息收集与体系搭建
+- 把复杂的问题简单化，把简单的问题复杂化
+
+**联系方式：**
+【bauzingy27@outlook.com】
