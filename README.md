@@ -1,6 +1,7 @@
 # 你好,我是包婧玥
 
-language, literature and culture. 目前在做的事情：把过去的积累、现在的思考和未完成的创作...整理成可见的作品集；）
+language, literature and culture. 
+目前在做的事情：把过去的积累、现在的思考和未完成的创作...整理成可见的作品集；）
 
 **作品集(持续整理并更新ing）:**
 
